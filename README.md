@@ -26,7 +26,7 @@
 
 ---
 
-> “Stay curious, keep building, and never stop learning.” 🚀  
+> 🚀 “Stay curious, keep building, and never stop learning.”   
 
 
 
