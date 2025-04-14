@@ -1,4 +1,4 @@
-<h1 align="center">Hi there, I'm Aqsa Tanoli 👋</h1>
+<h1 align="center"> 👋Hi there, I'm Aqsa Fayyaz </h1>
 
 ## 💡 About Me
 
