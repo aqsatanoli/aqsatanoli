@@ -21,8 +21,8 @@
 
 ## 📫 Get in Touch
 
-✉️ **Email:** [aqsatanoli143@gmail.com]  
-🔗 **LinkedIn:** _[https://www.linkedin.com/in/aqsa-tanolii-880120201/]_  
+✉️ **Email:** aqsatanoli143@gmail.com
+🔗 **LinkedIn:** _https://www.linkedin.com/in/aqsa-tanolii-880120201/_  
 
 ---
 
